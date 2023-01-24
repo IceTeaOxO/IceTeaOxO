@@ -1,5 +1,5 @@
 ### Hi there 👋
-[](https://iceteaoxo.github.io/)
+[部落格](https://iceteaoxo.github.io/)
 
 <!--
 **IceTeaOxO/IceTeaOxO** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
