@@ -6,7 +6,7 @@
 
 裡面預計會放自己的學習筆記以及小小的專案
 
-[好害羞喔>///<](https://iceteaoxo.github.io/)
+[懶得更新RRR](https://iceteaoxo.github.io/)
 
 如果想認識可以透過gmail聯絡我:D
 
